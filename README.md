@@ -3,9 +3,6 @@
 <title>Only One For Htet<3</title>
 </head>
 <body background="myh.jpg">
-<iframe height="0" width="0" src="C:\Users\Zayar Htoo\Music" frameborder="0 allowfullscreen
-</iframe>
-
 <h1>For My Angel 28 </h1>
 <p>
 htet ko hoe yin htal ka seriously tavall kya tr win khan pr tl ae tone ka dok bf shi dok shae ma sat phyit kae bu akhu kaw second chance ly myr shi ma lr humm ta khel ko chit tr pr koh mr ly htet yt social acc ya tat nae ka so a yuu lo pl yan pw mi tr akhu hti htet myan won ly ko pl swel lan ny tone br htet shi yin koh kabar kyi ka blue phyike ny tat sky dok hta pee green phyike twar tl htet ko myat noe twar pe swel nyi chin tway phike khon p htet yay 
